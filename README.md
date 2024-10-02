@@ -1,2 +1,2 @@
 # Labz
-Labz is An South African Musical Artist,Born on 17 September 2003.
+Labz is an South African musical artist Born on September 17, 2003, in South Africa,Mpumalanga.
